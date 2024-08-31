@@ -1,1 +1,1 @@
-# Sistemas-Opretivoa
+# Sistemas-Opretivos
